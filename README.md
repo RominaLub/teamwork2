@@ -1,4 +1,4 @@
-# teamwork2 
+# Reptilian conspiracy theory #
 
 `more hands make light work`
 
@@ -6,3 +6,9 @@
 
 
 ## the attack of the lizard people ##
+
+## Chapter two ##
+### the lizard people are slowly taking over the Government ###
+### they created a virus so everyone stayed at home ###
+x
+
